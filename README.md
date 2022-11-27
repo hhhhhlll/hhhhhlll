@@ -2,8 +2,9 @@
 - 👀 I’m interested in game and study
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me hhhhh_hhhhh@126.com
-Chinese , and ,I LOVE Tifa bestttttttttttttttttttttttttttttttttttttttt     !!!!
+- 📫 How to reach me hhhhh_hhhhh@163.com
+I come from China 
+And ,I LOVE Tifa bestttttttttttttttttttttttttttttttttttttttt     !!!!
 Ohhhh,and i love Hu Tao，too
 <!---
 hhhhhlll/hhhhhlll is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
