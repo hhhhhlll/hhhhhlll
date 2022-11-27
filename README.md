@@ -2,7 +2,7 @@
 - 👀 I’m interested in game and study
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me hhhhh_hhhhh@126.com
 Chinese , and ,I LOVE Tifa bestttttttttttttttttttttttttttttttttttttttt     !!!!
 Ohhhh,and i love Hu Tao，too
 <!---
